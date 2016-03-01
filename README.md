@@ -2,4 +2,4 @@
 simple repository
 
 Hii there, 
-  I'm just checking github. I think this is gonna be fun
+ I don't know wat i m doin here 
